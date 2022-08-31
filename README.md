@@ -1,2 +1,1 @@
-My time.i can win
-
+My chance. i can get over it.
